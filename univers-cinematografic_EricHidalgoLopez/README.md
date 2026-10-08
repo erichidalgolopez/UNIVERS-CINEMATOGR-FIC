@@ -1,0 +1,3 @@
+Univers Cinematografic
+
+Aquest univers cinematogràfic presenta una realitat on personatges com Spider-Man, Thor i Doctor Doom i altres personatges de Marvel comparteixen el mateix món. Doctor Doom és un geni i governant de Latveria que busca controlar el poder del món perquè creu que només ell pot dirigir el món. Per això ell és la major amenaça pel grup que es formarà en aquesta història. Cada personatge tindrà les seves històries les quals comencen per separat, però acaben connectant-se quan una gran ruptura central del planeta posa en perill a tots i obliga els herois a unir-se per impedir una catàstrofe.
